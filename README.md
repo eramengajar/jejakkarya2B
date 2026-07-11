@@ -1,1 +1,0 @@
-# jejakkarya2B
